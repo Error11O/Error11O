@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Error11O
+- 👀 I’m interested in ben
+- 🌱 I’m currently learning ben
+- 💞️ I’m looking to collaborate on ben
+- 📫 How to reach me Error110WasTaken@hotmail.com or error110.
